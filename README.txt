@@ -1,1 +1,0 @@
-je vous ai déposé le pdf et le code source que nous avons produit au cas où ça vous intéresserai.
